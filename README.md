@@ -16,6 +16,8 @@
 > https://www.nicovideo.jp/watch/sm12117681
 
 ## 新日暮里的魅惑舞步 金阁篇 / 新日暮里ダンススクール　金閣編
+![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/kingkaku.jpeg)
+> https://www.nicovideo.jp/watch/sm14483345
 
 ## 新日暮里的魅惑舞步 银阁篇 / 新日暮里ダンススクール　银閣編
 
