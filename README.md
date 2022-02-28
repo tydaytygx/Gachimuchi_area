@@ -30,6 +30,9 @@
 ## 新日暮里的魅惑舞步 铁阁篇 / 新日暮里ダンススクール　井上シャブレラ編 / Tekaku
 ![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/tekaku.jpeg)
 > https://www.nicovideo.jp/watch/sm14623706
+
+## 森之大统领 
+> 资源整理中
 ## 注意 本目录为个人收集 可能会有所偏差 如有遗漏以及错误请在issue指出 / personal collection feel free to take issues
 
 
