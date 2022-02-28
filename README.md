@@ -15,11 +15,13 @@
 ![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/茂美誘惑篇.jpeg)
 > https://www.nicovideo.jp/watch/sm12117681
 
-## 新日暮里的魅惑舞步 金阁篇 / 新日暮里ダンススクール　金閣編
+## 新日暮里的魅惑舞步 力之金阁篇 / 新日暮里ダンススクール　金閣編 / Kingkaku
 ![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/kingkaku.jpeg)
 > https://www.nicovideo.jp/watch/sm14483345
 
-## 新日暮里的魅惑舞步 银阁篇 / 新日暮里ダンススクール　银閣編
+## 新日暮里的魅惑舞步 魅之银阁篇 / 新日暮里タウンガイド　魅惑のダンススクール編 / Yinkaku
+![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/yinkaku.jpeg)
+> https://www.nicovideo.jp/watch/sm8475381
 
 ## 新日暮里的魅惑舞步 铜阁篇 / 新日暮里ダンススクール　铜閣編
 
