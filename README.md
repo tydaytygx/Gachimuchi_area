@@ -7,11 +7,11 @@
 <h3>索引上线中</h3>
 <h3>Placing index in stock</h3>
 
-## 本格的 ガチムチパンツレスリング / 比利大战木吉 本格的更衣室大战 / Billy vs Kazuya
-![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/billy_vs_kazuya.jpeg)
+## 本格的 比利大战木吉 本格的更衣室大战 / ガチムチパンツレスリング / Billy vs Kazuya
+![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/billy_vs_kazuya2.jpeg)
 > https://www.nicovideo.jp/watch/sm1175788
 
-## 城之内悠二 茂美の誘惑編 / 城之内悠二 茂美的诱惑篇 
+## 城之内悠二 茂美的诱惑篇 / 城之内悠二 茂美の誘惑編 
 ![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/茂美誘惑篇.jpeg)
 > https://www.nicovideo.jp/watch/sm12117681
 
@@ -24,6 +24,7 @@
 > https://www.nicovideo.jp/watch/sm8475381
 
 ## 新日暮里的魅惑舞步 铜阁篇 / 新日暮里ダンススクール　ルーニー編 / Dokaku
+![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/dokaku.jpeg)
 > https://www.nicovideo.jp/watch/sm14441987
 ## 新日暮里的魅惑舞步 铁阁篇 / 新日暮里ダンススクール　井上シャブレラ編 / Tekaku
 ![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/tekaku.jpeg)
