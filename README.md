@@ -43,6 +43,7 @@
 + 常用打击乐器
 
 ## 森之大统领 查韦斯奥巴马就职演说 肉体演说 / チャベス・オバマ新大統領就任演説 / Presisdent's speech
+![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/OBAMA.jpeg)
 > https://www.nicovideo.jp/watch/sm5926280
 ## 注意 本目录为个人收集 可能会有所偏差 如有遗漏以及错误请在issue指出 / personal collection feel free to take issues
 
