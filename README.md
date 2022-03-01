@@ -10,6 +10,7 @@
 ## 本格的 比利大战木吉 本格的更衣室大战 / ガチムチパンツレスリング / Billy vs Kazuya
 ![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/billy_vs_kazuya2.jpeg)
 > https://www.nicovideo.jp/watch/sm1175788
++ 谢谢你 木吉
 
 ## 城之内悠二 茂美的诱惑篇 / 城之内悠二 茂美の誘惑編 
 ![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/茂美誘惑篇.jpeg)
@@ -19,10 +20,12 @@
 ## 新日暮里的魅惑舞步 力之金阁篇 / 新日暮里ダンススクール　金閣編 / Kingkaku
 ![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/kingkaku.jpeg)
 > https://www.nicovideo.jp/watch/sm14483345
++ 金阁的股间摩擦
 
-## 新日暮里的魅惑舞步 魅之银阁篇 / 新日暮里タウンガイド　魅惑のダンススクール編 / Yinkaku
+## 新日暮里的魅惑舞步 技之银阁篇 / 新日暮里タウンガイド　魅惑のダンススクール編 / Yinkaku
 ![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/yinkaku.jpeg)
 > https://www.nicovideo.jp/watch/sm8475381
++ 银阁的分身
 
 ## 新日暮里的魅惑舞步 铜阁篇 / 新日暮里ダンススクール　ルーニー編 / Dokaku
 ![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/dokaku.jpeg)
