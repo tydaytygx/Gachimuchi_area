@@ -17,6 +17,8 @@
 > https://www.nicovideo.jp/watch/sm12117681
 + 同时也是 咚 DONG 乐器发源地
 
+# 新日暮里的魅惑舞步
+---
 ## 新日暮里的魅惑舞步 力之金阁篇 / 新日暮里ダンススクール　金閣編 / Kingkaku
 ![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/kingkaku.jpeg)
 > https://www.nicovideo.jp/watch/sm14483345
@@ -30,9 +32,15 @@
 ## 新日暮里的魅惑舞步 铜阁篇 / 新日暮里ダンススクール　ルーニー編 / Dokaku
 ![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/dokaku.jpeg)
 > https://www.nicovideo.jp/watch/sm14441987
+
 ## 新日暮里的魅惑舞步 铁阁篇 / 新日暮里ダンススクール　井上シャブレラ編 / Tekaku
 ![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/tekaku.jpeg)
 > https://www.nicovideo.jp/watch/sm14623706
+
+## 金阁银阁 尻鼓篇 / 金閣銀閣　尻鼓篇
+![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/kingkaku_yinkaku.jpeg)
+> https://www.nicovideo.jp/watch/sm40067336
++ 常用打击乐器
 
 ## 森之大统领 
 > 资源整理中
