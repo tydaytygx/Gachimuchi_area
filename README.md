@@ -41,7 +41,7 @@
 ## 金阁银阁 尻鼓篇 / 金閣銀閣　尻鼓篇
 ![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/kingkaku_yinkaku.jpeg)
 > [niconico](https://www.nicovideo.jp/watch/sm40067336)
-> 
+
 > [local](https://raw.githubusercontent.com/tydaytygx/Gachimuchi_area/main/videos/%E9%87%91%E9%96%A3%E9%8A%80%E9%96%A3%E3%80%80%E5%B0%BB%E9%BC%93%E7%AF%872_2%20-%20%E3%83%8B%E3%82%B3%E3%83%8B%E3%82%B3%E5%8B%95%E7%94%BB.ts)
 + 常用打击乐器
 
