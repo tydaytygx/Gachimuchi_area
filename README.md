@@ -14,7 +14,7 @@
 
 ## 城之内悠二 茂美的诱惑篇 / 城之内悠二 茂美の誘惑編 
 ![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/茂美誘惑篇.jpeg)
-> https://www.nicovideo.jp/watch/sm12117681
+> https://www.nicovideo.jp/watch/sm12110047
 + 同时也是 咚 DONG 乐器发源地
 + 茂美很恐怖
 
@@ -25,9 +25,9 @@
 > https://www.nicovideo.jp/watch/sm14483345
 + 金阁的股间摩擦
 
-## 新日暮里的魅惑舞步 技之银阁篇 / 新日暮里タウンガイド　魅惑のダンススクール編 / Yinkaku
+## 新日暮里的魅惑舞步 技之银阁篇 / 新日暮里ダンススクール　銀閣編 / Yinkaku
 ![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/yinkaku.jpeg)
-> https://www.nicovideo.jp/watch/sm8475381
+> https://www.nicovideo.jp/watch/sm14520778
 + 银阁的分身
 
 ## 新日暮里的魅惑舞步 铜阁篇 / 新日暮里ダンススクール　ルーニー編 / Dokaku
