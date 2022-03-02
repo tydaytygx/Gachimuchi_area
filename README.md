@@ -51,6 +51,10 @@
 ![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/kazuya.jpeg)
 > https://www.nicovideo.jp/watch/sm11985282
 
+## 猎天使魔男 贝奥兰迪 商务眼镜篇 / ビオランテ　目がビジネスマーン編 / Ikariya Biollante
+![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/biollante.jpeg)
+> https://www.nicovideo.jp/watch/sm5518359
+
 ## 注意 本目录为个人收集 可能会有所偏差 如有遗漏以及错误请在issue指出 / personal collection feel free to take issues
 
 
