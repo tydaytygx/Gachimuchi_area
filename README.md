@@ -46,7 +46,7 @@
 ## 森之大统领 查韦斯奥巴马就职演说 肉体演说 / チャベス・オバマ新大統領就任演説 / Presisdent OBAMA's speech
 ![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/OBAMA.jpeg)
 > [niconico](https://www.nicovideo.jp/watch/sm5926280)
-> [local](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/kazuya.jpeg)
+> [local](https://raw.githubusercontent.com/tydaytygx/Gachimuchi_area/main/videos/%E3%80%90%E6%96%B0%E6%97%A5%E6%9A%AE%E9%87%8C%E5%A4%A7%E7%B5%B1%E9%A0%98%E3%80%91%E3%80%80%E3%83%81%E3%83%A3%E3%83%99%E3%82%B9%E3%83%BB%E3%82%AA%E3%83%90%E3%83%9E%E6%96%B0%E5%A4%A7%E7%B5%B1%E9%A0%98%E5%B0%B1%E4%BB%BB%E6%BC%94%E8%AA%AC%20-%20%E3%83%8B%E3%82%B3%E3%83%8B%E3%82%B3%E5%8B%95%E7%94%BB.ts)
 
 
 ## 津吉工业 木吉和也篇 / 木吉カズヤ / kazuya
