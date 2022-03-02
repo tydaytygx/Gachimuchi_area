@@ -48,7 +48,7 @@
 > https://www.nicovideo.jp/watch/sm5926280
 
 ## 津吉工业 七本枪 木吉篇 / 木吉カズヤ / kazuya
-![]()
+![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/kazuya.jpeg)
 > https://www.nicovideo.jp/watch/sm11985282
 
 ## 注意 本目录为个人收集 可能会有所偏差 如有遗漏以及错误请在issue指出 / personal collection feel free to take issues
