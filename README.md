@@ -47,7 +47,7 @@
 ![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/OBAMA.jpeg)
 > https://www.nicovideo.jp/watch/sm5926280
 
-## 津吉工业 七本枪 木吉篇 / 木吉カズヤ / kazuya
+## 津吉工业 木吉和也篇 / 木吉カズヤ / kazuya
 ![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/kazuya.jpeg)
 > https://www.nicovideo.jp/watch/sm11985282
 
