@@ -15,7 +15,7 @@
 ## 城之内悠二 茂美的诱惑篇 / 城之内悠二 茂美の誘惑編 
 ![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/茂美誘惑篇.jpeg)
 > [niconico](https://www.nicovideo.jp/watch/sm12110047)
-+ 同时也是 咚 DONG 乐器发源地
++ 同时也是 DONG 乐器发源地
 + 茂美很恐怖
 
 # 新日暮里的魅惑舞步
