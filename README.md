@@ -1,7 +1,5 @@
 ![](https://img.shields.io/github/issues/tydaytygx/gachimuchi_aniki_area)
-
 ![](https://img.shields.io/github/stars/tydaytygx/gachimuchi_aniki_area)
-
 ![](https://img.shields.io/github/license/tydaytygx/gachimuchi_aniki_area)
 # 请稍♂等！ / Please stand ♂ by! 
 <h3>索引上线中（日更）</h3>
