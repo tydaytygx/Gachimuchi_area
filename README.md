@@ -9,12 +9,14 @@
 
 ## 本格的 比利大战木吉 本格的更衣室大战 / ガチムチパンツレスリング / Billy vs Kazuya
 ![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/billy_vs_kazuya2.jpeg)
-> https://www.nicovideo.jp/watch/sm1175788
+> [niconico](https://www.nicovideo.jp/watch/sm1175788)
+
+> [local](https://github.com/tydaytygx/Gachimuchi_area/blob/main/videos/%E6%9C%AC%E6%A0%BC%E7%9A%84%20%E3%82%AC%E3%83%81%E3%83%A0%E3%83%81%E3%83%91%E3%83%B3%E3%83%84%E3%83%AC%E3%82%B9%E3%83%AA%E3%83%B3%E3%82%B0%20-%20%E3%83%8B%E3%82%B3%E3%83%8B%E3%82%B3%E5%8B%95%E7%94%BB.ts?raw=true)
 + 谢谢你 木吉
 
 ## 城之内悠二 茂美的诱惑篇 / 城之内悠二 茂美の誘惑編 
 ![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/茂美誘惑篇.jpeg)
-> https://www.nicovideo.jp/watch/sm12110047
+> [niconico](https://www.nicovideo.jp/watch/sm12110047)
 + 同时也是 咚 DONG 乐器发源地
 + 茂美很恐怖
 
@@ -58,7 +60,13 @@
 
 ## 猎天使魔男 贝奥兰迪 商务眼镜篇 / ビオランテ　目がビジネスマーン編 / Ikariya Biollante
 ![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/biollante.jpeg)
-> https://www.nicovideo.jp/watch/sm5518359
+
+> [niconico](https://www.nicovideo.jp/watch/sm5518359)
+
+
+## VAN 访谈篇 / 【ボンマス外伝】 インタビュー・ウィズ・VANパイア / Interview of Van Darkholme 
+![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/van_darkholme_interview.jpeg)
+> [niconico]https://www.nicovideo.jp/watch/sm8522884
 
 ## 注意 本目录为个人收集 可能会有所偏差 如有遗漏以及错误请在issue指出 / personal collection feel free to take issues
 
