@@ -60,6 +60,13 @@
 ![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/biollante.jpeg)
 > https://www.nicovideo.jp/watch/sm5518359
 
+
+## 来自俄国的健美机械舞 /ボディビル　ロボットダンス / Electric Bodybuilder from Russia
+![](https://cdn.jsdelivr.net/gh/tydaytygx//Gachimuchi_aniki_area/imgs/gachimuchi_russia.jpeg)
+> https://www.nicovideo.jp/watch/sm137455
+
+
+
 ## 注意 本目录为个人收集 可能会有所偏差 如有遗漏以及错误请在issue指出 / personal collection feel free to take issues
 
 
