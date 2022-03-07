@@ -69,7 +69,8 @@
 
 ## 来自俄国的健美机械舞 /ボディビル　ロボットダンス / Electric Bodybuilder from Russia
 ![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/gachimuchi_russia.jpg)
-> https://www.nicovideo.jp/watch/sm137455
+
+> [niconico](https://www.nicovideo.jp/watch/sm137455)
 
 
 
