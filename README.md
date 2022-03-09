@@ -67,11 +67,15 @@
 > [niconico](https://www.nicovideo.jp/watch/sm8522884)
 
 
-## 来自俄国的健美机械舞 /ボディビル　ロボットダンス / Electric Bodybuilder from Russia
+## 来自俄国的健美机械舞 / ボディビル　ロボットダンス / Electric Bodybuilder from Russia
 ![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/gachimuchi_russia.jpg)
 
 > [niconico](https://www.nicovideo.jp/watch/sm137455)
 
+## 木吉 锻炼篇 / ワークアウト　オープニング編 
+![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/kazuya_exercise.jpeg)
+
+> [niconico](https://www.nicovideo.jp/watch/sm5000078)
 
 
 ## 注意 本目录为个人收集 可能会有所偏差 如有遗漏以及错误请在issue指出 / personal collection feel free to take issues
