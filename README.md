@@ -22,21 +22,21 @@
 ---
 ## 新日暮里的魅惑舞步 力之金阁篇 / 新日暮里ダンススクール　金閣編 / Kingkaku
 ![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/kingkaku.jpeg)
-> https://www.nicovideo.jp/watch/sm14483345
+> [niconico](https://www.nicovideo.jp/watch/sm14483345)
 + 金阁的股间摩擦
 
 ## 新日暮里的魅惑舞步 技之银阁篇 / 新日暮里ダンススクール　銀閣編 / Yinkaku
 ![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/yinkaku.jpeg)
-> https://www.nicovideo.jp/watch/sm14520778
+> [niconico](https://www.nicovideo.jp/watch/sm14520778)
 + 银阁的分身
 
 ## 新日暮里的魅惑舞步 铜阁篇 / 新日暮里ダンススクール　ルーニー編 / Dokaku
 ![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/dokaku.jpeg)
-> https://www.nicovideo.jp/watch/sm14441987
+> [niconico](https://www.nicovideo.jp/watch/sm14441987)
 
 ## 新日暮里的魅惑舞步 铁阁篇 / 新日暮里ダンススクール　井上シャブレラ編 / Tekaku
 ![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/tekaku.jpeg)
-> https://www.nicovideo.jp/watch/sm14623706
+> [niconico](https://www.nicovideo.jp/watch/sm14623706)
 
 ## 金阁银阁 尻鼓篇 / 金閣銀閣　尻鼓篇
 ![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/kingkaku_yinkaku.jpeg)
