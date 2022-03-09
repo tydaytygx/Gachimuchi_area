@@ -72,7 +72,7 @@
 
 > [niconico](https://www.nicovideo.jp/watch/sm137455)
 
-## 木吉 锻炼篇 / ワークアウト　オープニング編 
+## 木吉 锻炼篇 / ワークアウト　オープニング編 / Kazuya exercise
 ![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/kazuya_exercise.jpeg)
 
 > [niconico](https://www.nicovideo.jp/watch/sm5000078)
