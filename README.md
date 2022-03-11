@@ -77,7 +77,10 @@
 
 > [niconico](https://www.nicovideo.jp/watch/sm5000078)
 
+## 平家boy的反叛 / ボンデージ・マスター2 完全版
+![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/boys_avenger.jpeg)
 
+> [niconico](https://www.nicovideo.jp/watch/sm13283091)
 ## 注意 本目录为个人收集 可能会有所偏差 如有遗漏以及错误请在issue指出 / personal collection feel free to take issues
 
 
