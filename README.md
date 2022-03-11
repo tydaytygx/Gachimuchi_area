@@ -54,7 +54,7 @@
 
 ## 津吉工业 木吉和也篇 / 木吉カズヤ / kazuya
 ![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/kazuya.jpeg)
-> https://www.nicovideo.jp/watch/sm11985282
+> [niconico](https://www.nicovideo.jp/watch/sm11985282)
 
 ## 猎天使魔男 贝奥兰迪 商务眼镜篇 / ビオランテ　目がビジネスマーン編 / Ikariya Biollante
 ![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/biollante.jpeg)
