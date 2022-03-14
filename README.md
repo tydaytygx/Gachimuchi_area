@@ -81,6 +81,17 @@
 ![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/boys_avenger.jpeg)
 
 > [niconico](https://www.nicovideo.jp/watch/sm13283091)
+
+## 比利vs城之内 前半 / 本格的　ガチムチパンツレスリング　兄貴vs城之内　完全版　前半
+![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/billy_vs_jonouchi.jpg)
+
+> [niconico](https://www.nicovideo.jp/watch/sm4987950)
+
+## 比利vs吾作 前半 / 本格的　ガチムチパンツレスリング　兄貴vs吾作　完全版　前半
+![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/billy_vs_gosaku.jpg)
+
+> [niconico](https://www.nicovideo.jp/watch/sm5576817)
+> 
 ## 注意 本目录为个人收集 可能会有所偏差 如有遗漏以及错误请在issue指出 / personal collection feel free to take issues
 
 
