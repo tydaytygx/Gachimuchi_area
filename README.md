@@ -102,8 +102,8 @@
 ![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/gachimuchi_VAN_haircut.jpg)
 
 > [niconico](https://www.nicovideo.jp/watch/sm5576817)
-<!-- 
-> [local](https://github.com/tydaytygx/Gachimuchi_area/raw/main/videos/%E6%9C%AC%E6%A0%BC%E7%9A%84%E3%80%80%E3%82%AC%E3%83%81%E3%83%A0%E3%83%81%E3%83%91%E3%83%B3%E3%83%84%E3%83%AC%E3%82%B9%E3%83%AA%E3%83%B3%E3%82%B0%E3%80%80%E5%85%84%E8%B2%B4vs%E5%90%BE%E4%BD%9C%E3%80%80%E5%AE%8C%E5%85%A8%E7%89%88%E3%80%80%E5%89%8D%E5%8D%8A%20-%20%E3%83%8B%E3%82%B3%E3%83%8B%E3%82%B3%E5%8B%95%E7%94%BB.ts) -->
+
+> [local](https://github.com/tydaytygx/Gachimuchi_area/raw/main/videos/%E3%80%90%E3%83%9C%E3%83%B3%E3%83%9E%E3%82%B9%E5%A4%96%E4%BC%9D%E3%80%91%E3%80%80%E3%83%90%E3%83%AA%E3%82%AB%E3%83%B3%E7%B7%A8%20-%20%E3%83%8B%E3%82%B3%E3%83%8B%E3%82%B3%E5%8B%95%E7%94%BB_2.ts)
 
 ## 注意 本目录为个人收集 可能会有所偏差 如有遗漏以及错误请在issue指出 / personal collection feel free to take issues
 
