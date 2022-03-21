@@ -110,7 +110,7 @@
 
 > [niconico](https://www.nicovideo.jp/watch/sm8945268)
 
-> [local](https://github.com/tydaytygx/Gachimuchi_area/raw/main/videos/%E3%80%90%E3%83%9C%E3%83%B3%E3%83%9E%E3%82%B9%E5%A4%96%E4%BC%9D%E3%80%91%E3%80%80%E3%83%90%E3%83%AA%E3%82%AB%E3%83%B3%E7%B7%A8%20-%20%E3%83%8B%E3%82%B3%E3%83%8B%E3%82%B3%E5%8B%95%E7%94%BB_2.ts)
+> [local](https://github.com/tydaytygx/Gachimuchi_area/raw/main/videos/%E3%83%91%E3%83%B3%E3%83%84%E3%83%AC%E3%82%B9%E3%83%AA%E3%83%B3%E3%82%B0%E3%81%AE%E5%85%84%E8%B2%B4%E3%80%80%E3%80%90GAY%E2%99%82BAR%E3%80%91%E3%82%AA%E3%83%8A%E3%83%8F%E3%82%A6%E3%82%B9%20-%20%E3%83%8B%E3%82%B3%E3%83%8B%E3%82%B3%E5%8B%95%E7%94%BB.ts)
 
 ## 注意 本目录为个人收集 可能会有所偏差 如有遗漏以及错误请在issue指出 / personal collection feel free to take issues
 
