@@ -136,7 +136,7 @@
 
 ## 新日暮里消防署（消防员篇） / 新日暮里消防署(消防士編） / Playing With Fire 2
 
-![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/gachimuchi_play_with_fire.jpg)
+![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/gachimuchi_play_with_fire2.jpg)
 
 > [niconico](https://www.nicovideo.jp/watch/sm5348773)
 
