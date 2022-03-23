@@ -30,11 +30,11 @@
 > [niconico](https://www.nicovideo.jp/watch/sm14520778)
 + 银阁的分身
 
-## 新日暮里的魅惑舞步 铜阁篇 / 新日暮里ダンススクール　ルーニー編 / Dokaku
+## 新日暮里的魅惑舞步 动之铜阁篇 / 新日暮里ダンススクール　ルーニー編 / Dokaku
 ![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/dokaku.jpeg)
 > [niconico](https://www.nicovideo.jp/watch/sm14441987)
 
-## 新日暮里的魅惑舞步 铁阁篇 / 新日暮里ダンススクール　井上シャブレラ編 / Tekaku
+## 新日暮里的魅惑舞步 守之铁阁篇 / 新日暮里ダンススクール　井上シャブレラ編 / Tekaku
 ![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/tekaku.jpeg)
 > [niconico](https://www.nicovideo.jp/watch/sm14623706)
 
@@ -111,6 +111,13 @@
 > [niconico](https://www.nicovideo.jp/watch/sm8945268)
 
 > [local](https://github.com/tydaytygx/Gachimuchi_area/raw/main/videos/%E3%83%91%E3%83%B3%E3%83%84%E3%83%AC%E3%82%B9%E3%83%AA%E3%83%B3%E3%82%B0%E3%81%AE%E5%85%84%E8%B2%B4%E3%80%80%E3%80%90GAY%E2%99%82BAR%E3%80%91%E3%82%AA%E3%83%8A%E3%83%8F%E3%82%A6%E3%82%B9%20-%20%E3%83%8B%E3%82%B3%E3%83%8B%E3%82%B3%E5%8B%95%E7%94%BB.ts)
+
+## 新日暮里消防署（消防员篇） / 新日暮里消防署(消防士編） / Playing With Fire 2
+![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/gachimuchi_play_with_fire.jpg)
+
+> [niconico](https://www.nicovideo.jp/watch/sm5348773)
+
+<!-- > [local](https://github.com/tydaytygx/Gachimuchi_area/raw/main/videos/%E3%83%91%E3%83%B3%E3%83%84%E3%83%AC%E3%82%B9%E3%83%AA%E3%83%B3%E3%82%B0%E3%81%AE%E5%85%84%E8%B2%B4%E3%80%80%E3%80%90GAY%E2%99%82BAR%E3%80%91%E3%82%AA%E3%83%8A%E3%83%8F%E3%82%A6%E3%82%B9%20-%20%E3%83%8B%E3%82%B3%E3%83%8B%E3%82%B3%E5%8B%95%E7%94%BB.ts) -->
 
 ## 注意 本目录为个人收集 可能会有所偏差 如有遗漏以及错误请在issue指出 / personal collection feel free to take issues
 
