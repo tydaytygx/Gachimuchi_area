@@ -142,4 +142,12 @@
 
 > [local](<https://github.com/tydaytygx/Gachimuchi_area/raw/main/videos/%E6%96%B0%E6%97%A5%E6%9A%AE%E9%87%8C%E6%B6%88%E9%98%B2%E7%BD%B2(%E6%B6%88%E9%98%B2%E5%A3%AB%E7%B7%A8%EF%BC%89%20-%20%E3%83%8B%E3%82%B3%E3%83%8B%E3%82%B3%E5%8B%95%E7%94%BB.ts>)
 
+## 比利 木吉 锻炼篇 / パンツレスリングの兄貴 ワークアウト編 
+
+![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/gachimuchi_exercise.jpg)
+
+> [niconico](https://www.nicovideo.jp/watch/sm2515624)
+
+> [local](<https://github.com/tydaytygx/Gachimuchi_area/raw/main/videos/%E6%96%B0%E6%97%A5%E6%9A%AE%E9%87%8C%E6%B6%88%E9%98%B2%E7%BD%B2(%E6%B6%88%E9%98%B2%E5%A3%AB%E7%B7%A8%EF%BC%89%20-%20%E3%83%8B%E3%82%B3%E3%83%8B%E3%82%B3%E5%8B%95%E7%94%BB.ts>)
+
 ## 注意 本目录为个人收集 可能会有所偏差 如有遗漏以及错误请在issue指出 / personal collection feel free to take issues
