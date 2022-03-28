@@ -150,4 +150,21 @@
 
 > [local](<https://github.com/tydaytygx/Gachimuchi_area/raw/main/videos/%E3%83%91%E3%83%B3%E3%83%84%E3%83%AC%E3%82%B9%E3%83%AA%E3%83%B3%E3%82%B0%E3%81%AE%E5%85%84%E8%B2%B4%20%E3%83%AF%E3%83%BC%E3%82%AF%E3%82%A2%E3%82%A6%E3%83%88%E7%B7%A8%20-%20%E3%83%8B%E3%82%B3%E3%83%8B%E3%82%B3%E5%8B%95%E7%94%BB.ts>)
 
+## 金阁 银阁 童子军篇 1/2 / 金閣銀閣のボーイスカウト おもいでづくり編 1/2
+
+![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/gachimuchi_boy_scouts.jpg)
+
+> [niconico](https://www.nicovideo.jp/watch/sm13587873)
+
+> [local](<https://github.com/tydaytygx/Gachimuchi_area/raw/main/videos/%E3%83%91%E3%83%B3%E3%83%84%E3%83%AC%E3%82%B9%E3%83%AA%E3%83%B3%E3%82%B0%E3%81%AE%E5%85%84%E8%B2%B4%20%E3%83%AF%E3%83%BC%E3%82%AF%E3%82%A2%E3%82%A6%E3%83%88%E7%B7%A8%20-%20%E3%83%8B%E3%82%B3%E3%83%8B%E3%82%B3%E5%8B%95%E7%94%BB.ts>)
+
+## 金阁 银阁 童子军篇 2/2 / 金閣銀閣のボーイスカウト おもいでづくり編 2/2
+
+![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/gachimuchi_boy_scouts2.jpg)
+
+> [niconico](https://www.nicovideo.jp/watch/sm13588061)
+
+> [local](<https://github.com/tydaytygx/Gachimuchi_area/raw/main/videos/%E3%83%91%E3%83%B3%E3%83%84%E3%83%AC%E3%82%B9%E3%83%AA%E3%83%B3%E3%82%B0%E3%81%AE%E5%85%84%E8%B2%B4%20%E3%83%AF%E3%83%BC%E3%82%AF%E3%82%A2%E3%82%A6%E3%83%88%E7%B7%A8%20-%20%E3%83%8B%E3%82%B3%E3%83%8B%E3%82%B3%E5%8B%95%E7%94%BB.ts>)
+
+
 ## 注意 本目录为个人收集 可能会有所偏差 如有遗漏以及错误请在issue指出 / personal collection feel free to take issues
