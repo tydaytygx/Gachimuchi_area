@@ -166,5 +166,12 @@
 
 > [local](<https://github.com/tydaytygx/Gachimuchi_area/raw/main/videos/%E9%87%91%E9%96%A3%E9%8A%80%E9%96%A3%E3%80%80%E5%B0%BB%E9%BC%93%E7%AF%872_2%20-%20%E3%83%8B%E3%82%B3%E3%83%8B%E3%82%B3%E5%8B%95%E7%94%BB.ts>)
 
+## 全裸骑士团 1/4 / レスリングシリーズ外伝 井上カブレラ潜入編 1/4
+
+![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/gachimuchi_naked_knights.jpg)
+
+> [niconico](https://www.nicovideo.jp/watch/sm5567986)
+
+> [local](<https://github.com/tydaytygx/Gachimuchi_area/raw/main/videos/レスリングシリーズ外伝 井上カブレラ潜入編 1_4 - ニコニコ動画.ts>)
 
 ## 注意 本目录为个人收集 可能会有所偏差 如有遗漏以及错误请在issue指出 / personal collection feel free to take issues
