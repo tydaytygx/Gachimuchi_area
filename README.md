@@ -16,7 +16,7 @@
 
 + 谢谢你 木吉
 
-## 城之内悠二 茂美的诱惑篇 / 城之内悠二 茂美の誘惑編
+## 城之内悠二 茂美的诱惑篇 / 城之内悠二 茂美の誘惑編 
 
 ![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/茂美誘惑篇.jpeg)
 > [niconico](https://www.nicovideo.jp/watch/sm12110047)
@@ -109,7 +109,9 @@
 > [niconico](https://www.nicovideo.jp/watch/sm4987950)
 
 > [local](https://github.com/tydaytygx/Gachimuchi_area/raw/main/videos/%E6%9C%AC%E6%A0%BC%E7%9A%84%E3%80%80%E3%82%AC%E3%83%81%E3%83%A0%E3%83%81%E3%83%91%E3%83%B3%E3%83%84%E3%83%AC%E3%82%B9%E3%83%AA%E3%83%B3%E3%82%B0%E3%80%80%E5%85%84%E8%B2%B4vs%E5%9F%8E%E4%B9%8B%E5%86%85%E3%80%80%E5%AE%8C%E5%85%A8%E7%89%88%E3%80%80%E5%89%8D%E5%8D%8A%20-%20%E3%83%8B%E3%82%B3%E3%83%8B%E3%82%B3%E5%8B%95%E7%94%BB.ts)
->
+
++ 易建联♂ 
+
 ## 比利vs吾作 前半 / 本格的　ガチムチパンツレスリング　兄貴vs吾作　完全版　前半
 
 ![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/playing_with_fire2.jpg)
