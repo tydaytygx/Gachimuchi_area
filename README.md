@@ -191,5 +191,6 @@
 > [local](<https://github.com/tydaytygx/Gachimuchi_area/raw/main/videos/レスリングシリーズ外伝 井上カブレラ潜入編 3_4 - ニコニコ動画.ts>)
 
 + 半鱼人
++ 肉体演说
 
 ## 注意 本目录为个人收集 可能会有所偏差 如有遗漏以及错误请在issue指出 / personal collection feel free to take issues
