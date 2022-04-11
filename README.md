@@ -203,5 +203,13 @@
 
 > [local](<https://github.com/tydaytygx/Gachimuchi_area/raw/main/videos/レスリングシリーズ外伝 井上カブレラ潜入編 4_4 - ニコニコ動画.ts>)
 
+## 比利 弟漾 说教篇 / パンツレスリングの兄貴 説教編
+
+![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/gachimuchi_teach.jpg)
+
+> [niconico](https://www.nicovideo.jp/watch/sm4046668)
+
+> [local](<https://github.com/tydaytygx/Gachimuchi_area/raw/main/videos/パンツレスリングの兄貴 説教編 - ニコニコ動画>)
+
 
 ## 注意 本目录为个人收集 可能会有所偏差 如有遗漏以及错误请在issue指出 / personal collection feel free to take issues
