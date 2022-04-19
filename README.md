@@ -220,9 +220,9 @@
 
 > [local](<https://github.com/tydaytygx/Gachimuchi_area/raw/main/videos/水の精霊　ワークアウト編その１ - ニコニコ動画.ts>)
 
-## 水之精灵 锻炼篇 1 / 水の精霊　ワークアウト編その１
+## 水之精灵 锻炼篇 2 / 水の精霊　ワークアウト編その２
 
-![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/gachimuchi_aqua_1.jpg)
+![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/gachimuchi_aqua_2.jpg)
 
 > [niconico](https://www.nicovideo.jp/watch/sm9458614)
 
