@@ -4,7 +4,7 @@
 
 # 请稍♂等！ / Please stand ♂ by
 
-<h3>索引上线中（日更）</h3>
+<h3>索引上线中（不定日更）</h3>
 <h3>Placing index in stock（daily update）</h3>
 
 ## 本格的 比利大战木吉 本格的更衣室大战 / ガチムチパンツレスリング / Billy vs Kazuya
