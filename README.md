@@ -228,5 +228,13 @@
 
 > [local](<https://github.com/tydaytygx/Gachimuchi_area/raw/main/videos/水の精霊　ワークアウト編その２ - ニコニコ動画.ts>)
 
+## 水之精灵 锻炼篇 3 / 水の精霊　ワークアウト編その２
+
+![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/gachimuchi_aqua_3.jpg)
+
+> [niconico](https://www.nicovideo.jp/watch/sm9458620)
+
+> [local](<https://github.com/tydaytygx/Gachimuchi_area/raw/main/videos/水の精霊　ワークアウト編その３ - ニコニコ動画.ts>)
+
 
 ## 注意 本目录为个人收集 可能会有所偏差 如有遗漏以及错误请在issue指出 / personal collection feel free to take issues
