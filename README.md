@@ -201,7 +201,7 @@
 
 > [niconico](https://www.nicovideo.jp/watch/sm7560009)
 
-> [local](<https://github.com/tydaytygx/Gachimuchi_area/raw/main/videos/レスリングシリーズ外伝 井上カブレラ潜入編 4_4 - ニコニコ動画.ts>)
+> [local](<https://github.com/tydaytygx/Gachimuchi_area/blob/main/videos/レスリングシリーズ外伝 井上カブレラ潜入編 4_4 - ニコニコ動画_2.ts>)
 
 ## 比利 弟漾 说教篇 / パンツレスリングの兄貴 説教編
 
