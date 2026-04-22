@@ -8,8 +8,9 @@
 <h3>Placing index in stock（Randomly update）</h3>
 
 # Local目录的文件播放方法
+MPV
 VLC
-potplayer
+Potplayer
 等支持.ts后缀的播放器
 
 ## 本格的 比利大战木吉 本格的更衣室大战 / ガチムチパンツレスリング / Billy vs Kazuya
@@ -27,7 +28,7 @@ potplayer
 > [niconico](https://www.nicovideo.jp/watch/sm12110047)
 
 + 同时也是 DONG 乐器发源地
-+ 茂美很恐怖
++ 茂美很恐怖 / She gave me quiet (a show)
 
 # 新日暮里的魅惑舞步
 
