@@ -101,7 +101,7 @@ potplayer
 
 > [niconico](https://www.nicovideo.jp/watch/sm5000078)
 
-## 平家boy的反叛 / ボンデージ・マスター2 完全版
+## 平家boy的反叛 / ボンデージ・マスター2 完全版 | 原片名：拘禁之屋 / House Of Detention
 
 ![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/boys_avenger.jpeg)
 
@@ -240,6 +240,7 @@ potplayer
 > [niconico](https://www.nicovideo.jp/watch/sm9458620)
 
 > [local](<https://github.com/tydaytygx/Gachimuchi_area/raw/main/videos/水の精霊　ワークアウト編その３ - ニコニコ動画.ts>)
+
 
 
 ## 注意 本目录为个人收集 可能会有所偏差 如有遗漏以及错误请在issue指出 / personal collection feel free to take issues
