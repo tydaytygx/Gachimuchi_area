@@ -209,6 +209,17 @@ Potplayer
 
 > [local](<https://github.com/tydaytygx/Gachimuchi_area/blob/main/videos/レスリングシリーズ外伝 井上カブレラ潜入編 4_4 - ニコニコ動画_2.ts>)
 
+## 井上秘宝篇1_2 /井上シャブレラ　秘宝編　シーン追加版 1_2
+
+![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/井上シャブレラ__秘宝編__シーン追加版_1_2.png)
+![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/gachimuchi_aqua_1.jpg)
+> [local](<https://github.com/tydaytygx/Gachimuchi_area/blob/main/videos/井上シャブレラ　秘宝編　シーン追加版 1_2.mp4>)
+
+
+## 井上秘宝篇2_2 /井上シャブレラ　秘宝編　シーン追加版 2_2
+![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/井上シャブレラ__秘宝編__シーン追加版_2_2.png)
+> [local](<https://github.com/tydaytygx/Gachimuchi_area/blob/main/videos/井上シャブレラ　秘宝編　シーン追加版 2_2.mp4>)
+
 ## 比利 弟漾 说教篇 / パンツレスリングの兄貴 説教編
 
 ![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/gachimuchi_teach.jpg)
@@ -241,6 +252,7 @@ Potplayer
 > [niconico](https://www.nicovideo.jp/watch/sm9458620)
 
 > [local](<https://github.com/tydaytygx/Gachimuchi_area/raw/main/videos/水の精霊　ワークアウト編その３ - ニコニコ動画.ts>)
+
 
 
 
