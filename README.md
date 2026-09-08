@@ -212,7 +212,6 @@ Potplayer
 ## 井上秘宝篇1_2 /井上シャブレラ　秘宝編　シーン追加版 1_2
 
 ![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/井上シャブレラ__秘宝編__シーン追加版_1_2.png)
-![](https://cdn.jsdelivr.net/gh/tydaytygx/Gachimuchi_aniki_area/imgs/gachimuchi_aqua_1.jpg)
 > [local](<https://github.com/tydaytygx/Gachimuchi_area/blob/main/videos/井上シャブレラ　秘宝編　シーン追加版 1_2.mp4>)
 
 
